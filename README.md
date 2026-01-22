@@ -3,48 +3,53 @@
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
 ```
+「Nero電話なってるよ」
+「いやTina電話なってるって」
+「ねえちょっと両手ふさがってるから」
+「腰のとことか うわ あああ」
+「ちゃちゃちゃちゃ いやー無理無理無理 あ Lita姉」
+「はい?」(Suisoh, hurry up, baby)
 どうせ夜行性なら鳴らそう
-脆弱性State 用済みのKick out
-先手打つの道なきstreet
-なんだかんだ募る不満　即Treat
+脆弱性 state 用済みの kick out
+先手打つの道なき street
+なんだかんだ募る不満 即 treat
 早寝なんて土曜の無駄遣いじゃん
 また出番ね我々がハイジャック
-かませばいいのお砂糖のLow
-それともブラックをご所望？
-夢見させるTonight
+かませばいいのお砂糖の low
+それともブラックをご所望?
+夢見させる tonight
 You and I succeeded! All night
 ついてきな私がα星
 みな一滴残らず飲み干せ
 行きは良い良い
-帰りはもっと良い！
-超満員のフロア照らすAntares
+帰りはもっと良い!
+超満員のフロア照らす Antares
 情熱で光る星のように
 最高潮の僕らが今一番揺らしてるこの夜を
-OH YEAH! BE NOISY!
-口先だけじゃなく未知数のSkill見せる
-OH YEAH! BE NOISY!
+Oh, yeah! (Oh, yeah!) Be noisy! (Be noisy!)
+口先だけじゃなく未知数の skill 見せる
+Oh, yeah! (Oh, yeah!) Be noisy! (Be noisy!)
 フロアの向こう側でぼやけた朝を待とう
-人目など知らないCheers
-だる絡み煙たい
-カウンターまでワンマイル
-今宵、月はとびきり赤い
+人目など知らない cheers だる絡み煙たい
+Oh カウンターまでワンマイル
+今宵 月はとびきり赤い
 フルムーン何か起きそうな気配
-首にリードつながれてる場合？
+首にリードつながれてる場合?
 誰が一番飛べんのか
-端から端まで見えてる私のEyes
-夢見させるTonight
+端から端まで見えてる私の eyes
+夢見させる tonight
 You and I succeeded! All night
 数字がどうであれ蹴散らせ
-きっかけならどこにでもあるOK
+きっかけならどこにでもある okay
 見つけちゃうのが怖かったりして
 集大成のこの瞬間をただ
 味わったら明日も生きていける
-最前線の僕らが今一番だ、絶対！
-超満員のフロア照らすAntares
+最前線の僕らが今一番だ 絶対!
+超満員のフロア照らす Antares
 情熱で光る星のように
 最高潮の僕らが今一番揺らしてるこの夜を
-OH YEAH! BE NOISY!
-口先だけじゃなく未知数のskill見せる
-OH YEAH! BE NOISY!
+Oh, yeah! (Oh, yeah!) Be noisy! (Be noisy!)
+口先だけじゃなく未知数の skill 見せる
+Oh, yeah! (Oh, yeah!) Be noisy! (Be noisy!)
 フロアの向こう側でぼやけた朝を待とう
 ```
